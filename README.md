@@ -7,5 +7,7 @@ And i was participated as a Team leader of CSTU_Elish.
 Here is the Ranklist of IUT-IUPC-2024 -> https://toph.co/c/iut-11th-national-ict-fest-2024/standings
 
 ![image alt](https://github.com/shamimkhan8134/IUT-IUPC-2024/blob/main/ae24b050-d03c-4683-98bb-509474bf0b84.jpg)
+![image alt](https://github.com/shamimkhan8134/IUT-IUPC-2024/blob/main/WhatsApp%20Image%202024-05-01%20at%2011.49.06_90798646.jpg)
+
 
 
